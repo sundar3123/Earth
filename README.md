@@ -1,2 +1,0 @@
-# Earth
-FUTURE READY TALENT
